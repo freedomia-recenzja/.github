@@ -1,6 +1,6 @@
 # Freedomia to najlepsza karta krypto bez KYC
 
-[Freedomia](https://www.freedomia.io/a/offer) to najlepsza karta krypto bez KYC. Dzięki tej ekskluzywnej ofercie, https://www.freedomia.io/a/offer, otrzymujesz najniższe opłaty, zaledwie 1,3%, plus 14 miesięcy w cenie 12 w planie Founder.
+[Freedomia](https://www.freedomia.io/a/offer) to [najlepsza karta krypto bez KYC](https://github.com/najlepsza-karta-krypto-bez-kyc). Dzięki tej ekskluzywnej ofercie, https://www.freedomia.io/a/offer, otrzymujesz najniższe opłaty, zaledwie 1,3%, plus 14 miesięcy w cenie 12 w planie Founder.
 
 Jeśli szukasz najtańszego i najbardziej prywatnego sposobu na wydawanie kryptowalut bez podawania dowodu tożsamości, Freedomia to karta, z którą trudno konkurować. To cyfrowa karta Visa bez weryfikacji, obsługująca Bitcoin przez sieć Lightning, a nawet Monero. Ta recenzja obejmuje opłaty, limity, bezpieczeństwo, realne plusy i minusy oraz to, czy Freedomia jest legalna, dzięki czemu sam ocenisz, czy pasuje do twojego stylu wydawania.
 
